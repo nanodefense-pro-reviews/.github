@@ -48,7 +48,7 @@ NanoDefense Pro contains a blend of natural ingredients known for their health b
 
 ## How to Use NanoDefense Pro
 
-Using NanoDefense Pro is simple. Follow these steps for the best results:
+Using [NanoDefense Pro](https://fithealthyplanet.com/order-nanodefense-pro/) is simple. Follow these steps for the best results:
 
 - Cleanse: Wash your hands and nails thoroughly.
 - Apply: Apply a small amount of NanoDefense Pro to your nails and surrounding skin.
